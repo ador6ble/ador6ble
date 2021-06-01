@@ -7,3 +7,6 @@
 ︰Follow my twitter for a hug! -> @plushiegrl      
 ︰Thank you for reading my intro!     
  🐇  ⋅ ˖˙໑ ︶꒷꒷︶꒦꒷︶︶꒷꒷꒦꒷︶﹒੭ ̇
+
+₊˚ ⊹ ₊  Join my discord server! ໒꒱ ₊˚    
+╰╮ https://discord.gg/eXRCfEFJ4A ♡
